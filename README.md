@@ -1,3 +1,4 @@
+https://ares006-007.github.io/escape-if-you-can/
 About Escape Road
 Are you ready for a thrilling online police escape in Escape Road? You are a robber who has just committed a bank robbery and must escape from the police chase. To escape this chase, sharp driving skills, drifting, and quick reflexes to avoid obstacles are essential. The chaotic streets with loud police sirens can easily make you make mistakes. Can you overcome and outrun successfully?
 
@@ -48,10 +49,3 @@ Dramatic chases: Escape Road offers tense and dramatic chases, requiring players
 Games in the Escape Road series
 Don't miss out on other versions with unique features!
 
-Escape Road 2: Introduce diverse vehicles, parachute escapes, and mid-chase vehicle switching.
-Escape Road City: Urban high-speed pursuits with dynamic traffic and cityscapes.
-Escape Road City 2: Add swimming, power-ups, and a secret map for expanded exploration.
-Escape Road Halloween: Spooky-themed chase.
-Escape Road Winter: Snowy terrain challenges.
-Conclusion
-Escape Road is not only a chase game but also an adventure full of drama and challenges. Each round brings new and surprising experiences, requiring driving skills and quick reflexes. Buckle up, start the engine, and prepare for a dramatic escape. The game is available to play at https://escaperoad.io/ for free!
